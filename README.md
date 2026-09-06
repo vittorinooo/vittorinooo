@@ -1,11 +1,11 @@
 <h3 align="center">
 <br><sub><a href="https://m4ttwazhere.atabook.org/"> ♡ ata </a>  ⏝        <a 
                                                                             
-<br><sub><a href="https://rentry.co/ComputerorPhone/">  rentry</a> ⏝  <a 
+<br><sub><a href="https://rentry.co/davesintroo/">  rentry(Dave)</a> ⏝   
                                                                         
-<br><sub><a href="https://rentry.co/mattsintro/">  Matt verison rentry nothing different just matt</a> ⏝  <a 
+<br><sub><a href="https://rentry.co/mattsintro/">  Matt verison rentry nothing different just matt</a> ⏝    
 
-<br><sub><a href="https://askmatt.straw.page/"> ask me things! ♩ </a>  ⏝        <a 
+<br><sub><a href="https://askmatt.straw.page/"> ask me things! ♩ </a>  ⏝         
 
 
 
